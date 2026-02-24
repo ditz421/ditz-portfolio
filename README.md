@@ -1,0 +1,1 @@
+nyoba ai doang bang
